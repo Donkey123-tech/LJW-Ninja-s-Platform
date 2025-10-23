@@ -1,1 +1,1 @@
-# LJW-Ninja-s-Platform
+# LJW-Ninjas-Platform
